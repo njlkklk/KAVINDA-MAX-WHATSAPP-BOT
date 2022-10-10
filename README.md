@@ -1,7 +1,7 @@
 <p align="center">
 <img src="./Android/database/K.Prabhasha.gif" alt="Loading..." width="320"/>
 <p align="center">
-<img src="https://ibb.co/bFQBdDJ" alt="nz" width="350"/>
+<img src="https://i.ibb.co/qC7s1V5/Whats-App-Image-2022-10-10-at-2-20-05-AM.jpg" alt="nz" width="350"/>
 </p>
 
 ## KAVINDA MAX-𝗕𝗢𝗧࿐   Version 12.0
