@@ -4,7 +4,7 @@
 <img src="https://i.ibb.co/qC7s1V5/Whats-App-Image-2022-10-10-at-2-20-05-AM.jpg" alt="nz" width="350"/>
 </p>
 
-## KAVINDA MAX-𝗕𝗢𝗧࿐   Version 12.0
+## KAVINDA MAX-BOT࿐   Version 12.0
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
 
@@ -14,9 +14,9 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 <img src="./Android/database/K.Prabhasha-1.gif" alt="Loading..." width="310"/>
 
-> Image Designed By  ==(Dineth Indusara)== RED DRAGON TEAM
+> Image Designed By  ==(KAVINDA)==  KAVINDA MAXd
 
-> Created By ==(Kumuthu Prabhasha)== RED DRAGON TEAM
+> Created By ==(KAVINDA MAX)== KAVINDA MAX
 
 
 <p align="center">
@@ -32,7 +32,7 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
  
 ## 🙂➾ [Then Deploy The Bot From Here](https://heroku.com/deploy)
 
-## 🙂➾ [Red Dragon Bot Official Website Here](https://sites.google.com/view/red-dragon-bot/home)
+## 🙂➾ [KAVINDA MAX WHATSAPP BOT YOUTUBE  Here](KAVINDA MAX)
 
 
 <p align="center">
@@ -45,14 +45,14 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 <b><details><summary>🔄How to Update Bot🔄</summary>
 
-> [VIDEO](https://drive.google.com/file/d/1798s8erVW31EcmK3Opq-QuV7GG4byyoH/view)
+> [YOUTUBE](KAVINDA MAX)
 
 </b>
 </details>
 
 <b><details><summary>📤How to Upload Images To Alive Msg📤</summary>
 
-> [VIDEO](https://drive.google.com/file/d/16J5278xK9-5oJUsGPygviVC9U6exw1AZ/view)
+> [YOUTUBE](KAVINDA MAX)
 
 </b>
 </details>
@@ -73,7 +73,7 @@ Recommended WhatsApp👇
 
 ##
 
-> [SUPPORT GROUP](https://chat.whatsapp.com/I1v5ZTJeFjZ9x5LzG3qPHU)
+> [SUPPORTER WHATSAPP NUMBER](+94713403722)
 
 <b><details><summary>𝗛𝗼𝘄 𝗧𝗼 𝗠𝗮𝗸𝗲?</summary>
 
@@ -97,7 +97,7 @@ Recommended WhatsApp👇
 
 ## ```Connect With Me```
 <p align="center">
-<a href="https://wa.me/380944814219"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
+<a href="https://wa.me/+94713403722"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
 </p>
 
 </details>
@@ -106,7 +106,7 @@ Recommended WhatsApp👇
 <img src="https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg" alt="nz" width="700"/>
 </p>
 
-## 𝐌𝐑: ☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐
+## MR: ☬KAVINDA MAX࿐
 
 
 
