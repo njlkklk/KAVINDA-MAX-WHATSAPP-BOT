@@ -6,7 +6,7 @@
 
 ## KAVINDA MAX-BOT࿐   Version 12.0
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+KAVINDA+MAX+BOT.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈;+KAVINDA THISARA+;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+KAVINDA MAX ;𝐌𝐑:+☬KAVINDA༒MAX࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
 
 LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
@@ -14,7 +14,7 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 <img src="./Android/database/K.Prabhasha-1.gif" alt="Loading..." width="310"/>
 
-> Image Designed By  ==(KAVINDA)==  KAVINDA MAXd
+> Image Designed By  ==(KAVINDA)==  KAVINDA MAX
 
 > Created By ==(KAVINDA MAX)== KAVINDA MAX
 
@@ -138,7 +138,7 @@ Recommended WhatsApp👇
 </div>
 
 ## Thanks To
-* [`@adiwajshing/baileys`](https://github.com/adiwajshing/baileys)
-* [`Alien-Alfa`](https://github.com/Alien-Alfa)
-* [`DGXeon`](https://github.com/DGXeon)
-* [`AflahXrd`](https://github.com/nexusNw)
+*(https://github.com)
+* [♦️]
+* [😊]
+* [👍]
